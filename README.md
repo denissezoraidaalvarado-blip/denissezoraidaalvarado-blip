@@ -1,5 +1,5 @@
 # 💫 About Me:
-Soy Docente en el área de Informática<br>Llevo más de 20 años en éste ámbito de la docencia.<br>Me desempeño con alumnos en el área de Desarrollo <br>de Software a nivel de Bachillerato y en Tercer Ciclo <br>desarrollamos proyectos integrados.<br>También imparto clases en línea a nivel empresarial en la<br>especial de Microsoft Excel en sus diferentes niveles.
+Soy Docente en el área de Informática<br>Llevo más de 20 años en éste ámbito de la docencia.<br>Me desempeño con alumnos en el área de Desarrollo <br>de Software a nivel de Bachillerato y en Tercer Ciclo <br>desarrollamos proyectos integrados.<br>También imparto clases en línea a nivel empresarial en la<br>especial de Microsoft Excel en sus diferentes niveles..
 
 
 ## 🌐 Socials:
